@@ -7,7 +7,7 @@ LandOfDreams
 ![photo_2024-03-25_22-11-43](https://github.com/ewsrsdf00/palitex/assets/164941480/0b51572c-f65c-4e53-a84e-22f20cf95fde)
 
 
-Embark on an extraordinary journey to the Land of Dreams – a place where the digital realm awakens to the artistry of NFTs and gaming becomes an odyssey of imagination. Our immersive NFT game awaits your exploration at landofdrems.xyz
+Embark on an extraordinary journey to the Land of Dreams – a place where the digital realm awakens to the artistry of NFTs and gaming becomes an odyssey of imagination. Our immersive NFT game awaits your exploration at  landofdrems.xyz
 
 Dive into a universe crafted with vibrant artistry, where every character, artifact, and landscape is a unique NFT, ripe for discovery. In the Land of Dreams, you're not just a player – you're an adventurer, collector, and creator. Your choices weave the narrative of your experience, and your collections grow with every quest.
 
